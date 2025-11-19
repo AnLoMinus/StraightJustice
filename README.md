@@ -1,5 +1,8 @@
 # ✨ לא תטה משפט – **StraightJustice – SJ** ⚖🔥
 
+<img width="1536" height="1024" alt="Balanced Energy in Red and Blue" src="https://github.com/user-attachments/assets/004a07f9-5311-41f6-a16a-1d52468d187b" />
+
+
 **(דברים ט״ז י״ט)**
 **תאריך:** י״ח בחשוון תשפ״ו • 19/11/2025
 **שעה:** 20:00 (+02)
